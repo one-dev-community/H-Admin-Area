@@ -27,6 +27,7 @@
 -----------------------------------------------------------
 
 ### Support
-* Join our [Discord](https://discord.gg/CaragjWEH2)
+* Join our [Discord](https://discord.gg/9HumDzMusA)
+OUR TEBEX: https://oneshop.tebex.io/
 
 ©️ CopyRight By One Shop Team & ^Hekson#7961
